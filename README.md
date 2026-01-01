@@ -1,1 +1,1 @@
-# www.Powerwise.pk.org
+# www.Powerwise.org
