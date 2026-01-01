@@ -1,1 +1,1 @@
-# www.powerwise.net
+# powerwise-smart.com
